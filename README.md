@@ -36,6 +36,8 @@
  ![image](https://user-images.githubusercontent.com/113594316/198233336-dd9f5c19-481b-486a-928a-99c32a732f89.png)
 
  ## OUTPUT
+ <img width="3508" height="2479" alt="exp no 1b refral (2)_page-0001" src="https://github.com/user-attachments/assets/b6b74b2d-1462-444e-8e79-f76cc39a1ba3" />
+
  
  
  ## RESULT
